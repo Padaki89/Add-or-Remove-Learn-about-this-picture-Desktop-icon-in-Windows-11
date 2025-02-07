@@ -1,1 +1,1 @@
-# Add-or-Remove-Learn-about-this-picture-Desktop-icon-in-Windows-11
+# Add or Remove Learn about this picture Desktop icon in Windows-11
